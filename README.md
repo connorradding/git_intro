@@ -1,1 +1,2 @@
 Connor Radding
+raddingc@oregonstate.edu
